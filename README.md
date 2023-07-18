@@ -1,1 +1,1 @@
-Arena - Blessing of Sanctuary - 10.1.5
+Arena - Blessing of Sanctuary Healer - 10.1.5
